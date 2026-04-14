@@ -81,7 +81,7 @@ I focus on:
 ## 🤝 Let’s Connect
 
 🐙 GitHub: https://github.com/adarshatl03
-💼 LinkedIn: (add your link)
+💼 LinkedIn: https://www.linkedin.com/in/adarshatl03/
 
 ---
 
